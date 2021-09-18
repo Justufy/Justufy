@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Justufy
+- 👋 Hi, I’m Justufy
 - 👀 I’m interested in playing Video games
 - 🌱 I’m currently learning something from school
 - 💞️ I’m looking to collaborate on my birthday
